@@ -1,2 +1,2 @@
-# Baljinder Chahal
+Baljinder Chahal
 My name is Baljinder Chahal
